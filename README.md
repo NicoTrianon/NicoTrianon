@@ -5,5 +5,5 @@ I´m an Economist, with a Master`s degree in Project Management. Responsible, co
 - Currently working as a Project coordinator in ADP. 
 - Currently learning Data Science at The Bridge Academy.
 - Always looking to expand my network and to collaborate in interesting projects. 
-- Passionate about sports and about having a real and positive impact in the world.
+- Passionate about sports and having a real and positive impact in the world.
 - Linkedin URL: www.linkedin.com/in/NicolasTrianon
